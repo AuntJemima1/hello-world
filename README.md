@@ -2,7 +2,7 @@
 
 Hi
 
-I am JemimaSenpai/Aunt Jemima/HelloGuysImHereYaY/NeighgerSpectre/Friendly Neighger/LegalizeFurries/LegalizeIran/FaZeThomaz/Parker
-I play video games sometimes. I do Roblox stuff. I'm 15. I'm so quirky and funny
+I am Aunt Jemima/HelloGuysImHereYaY/NeighgerSpectre/LegalizeFurries/LegalizeIran/FaZeThomaz/Parker
+I play video games sometimes. I don't like Britain. I'm 15. I'm so quirky and funny
  
 Bye
